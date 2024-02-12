@@ -1,8 +1,8 @@
 Reporting AnalystReporting Analyst
-Premier BPO, LLC. · Full-timePremier BPO, LLC. · Full-time
-Aug 2023 - Present · 1 moAug 2023 - Present · 1 mo
-Lahore, Punjab, Pakistan · HybridLahore, Punjab, Pakistan · Hybrid
-I am responsible for the data analysis of international projects and the creation of reports for the higher management.
+Premier BPO, LLC. · Full-time
+Aug 2023 - Present
+Lahore, Punjab, Pakistan.
+I am responsible for the data analysis of international projects and the creation of bespoke reports for the higher management.
 
 Senior Research Associate, 07/2020 to Present
 Institute of Research Promotion (IRP) - Lahore
